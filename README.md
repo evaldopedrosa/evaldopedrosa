@@ -46,7 +46,7 @@ It’s simply the system I use to think and build better.
 
 My background sits somewhere between:
 
-`strategy` · `product` · `innovation` · `creative direction` · `technology` · `entrepreneurship`
+`strategy` · `product` · `innovation` · `design` · `creative direction` · `technology` · `entrepreneurship`
 
 I’m particularly interested in the messy early stages of things:
 
