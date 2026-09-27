@@ -48,12 +48,9 @@ My background sits somewhere between:
 
 `strategy` · `product` · `innovation` · `design` · `creative direction` · `technology` · `entrepreneurship`
 
-I’m particularly interested in the messy early stages of things:
+I’m driven by curiosity and by the process of turning ideas into things that actually exist.
 
-**What should we build?  
-Why should it exist?  
-How do we make it real?  
-And how do we know if anyone actually wants it?**
+I like exploring new spaces, understanding how things work, connecting different disciplines and building systems around them — from the first idea to something structured, useful and capable of growing.
 
 ## Elsewhere
 
