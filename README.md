@@ -54,4 +54,4 @@ I like exploring new spaces, understanding how things work, connecting different
 
 ## Elsewhere
 
-[Portfolio] · [LinkedIn](https://www.linkedin.com/in/evaldopedrosa) · [YouTube](https://www.youtube.com/@Evakdo)
+[Personal Website](https://evakdo.com) · [LinkedIn](https://www.linkedin.com/in/evaldopedrosa) · [YouTube](https://www.youtube.com/@Evakdo)
